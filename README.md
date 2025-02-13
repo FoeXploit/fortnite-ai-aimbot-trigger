@@ -1,3 +1,8 @@
+https://github.com/user-attachments/assets/528760a8-31a5-4df4-add9-2f3b9ee056fc
+![GUI](https://github.com/user-attachments/assets/4c4777d2-47c6-4ab4-b924-552cad63c6ca)
+
+# *Video of how the trigger works.**
+
 # **FOE | UNDETECTABLE FORTNITE AI AIMBOT & TRIGGER**
 
 ## 📌 **Description**
