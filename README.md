@@ -1,4 +1,8 @@
-https://github.com/user-attachments/assets/528760a8-31a5-4df4-add9-2f3b9ee056fc
+
+
+https://github.com/user-attachments/assets/86c867f9-28cb-4d4a-bf2f-a17cbaa40809
+
+
 ![GUI](https://github.com/user-attachments/assets/4c4777d2-47c6-4ab4-b924-552cad63c6ca)
 
 # *Video of how the trigger works.**
